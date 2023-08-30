@@ -1,0 +1,3 @@
+- Celso
+- Experiência com manutenção de computador / Artista
+- Ganhar mais conhecimento e experiência na área de TI / Conhecimento em Hardware
